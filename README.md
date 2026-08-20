@@ -1,2 +1,2 @@
-# T-H-E-Z-E-R-O
-The Zero On Top
+# T H E  Z E R O  O N  T O P
+The Zero x G O T O
